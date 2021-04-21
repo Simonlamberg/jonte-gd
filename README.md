@@ -1,2 +1,7 @@
 # jonte-gd
 jonteblirägd
+SUG PÅ DEN DIN MUPP
+SPELA TITANFALL 2
+MASS EFFECT
+JEDI FALLEN ORDER
+INSERT>get fucked.gif
