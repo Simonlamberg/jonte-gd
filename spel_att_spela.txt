@@ -1,0 +1,9 @@
+Simon:
+ - Titanfall 2: Yes
+ - Mass Effect: Yes
+ - Jedi Fallen Order: Yes
+
+Jonte:
+ - Titanfall 2: No
+ - Mass Effect: No
+ - Jedi Fallen Order: No
